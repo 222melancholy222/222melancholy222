@@ -1,5 +1,5 @@
 ## Hi there👋
-I'm school study in China University of Technology<br/>
+
 ![hello](275209131_333798112100744_7783144823150735052_n.jpg)
 
 - 📫 How to reach me:  chengunfar333@gmail.com
